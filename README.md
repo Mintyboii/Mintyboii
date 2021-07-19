@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @Mintyboii
 - 👀 I’m interested in: playing minecraft
-- 🌱 I’m currently learning: nothing
 - 📫 How to reach me: Minty#0046 (discord)
